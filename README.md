@@ -152,4 +152,3 @@ patelalok2001@gmail.com
 7609904141
 https://www.linkedin.com/in/alok-kumar-patel/
 
-Passionate about leveraging data analytics to drive operational excellence and strategic decision-making.
